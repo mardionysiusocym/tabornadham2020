@@ -6,6 +6,11 @@
 
 
 Published by 
+
+![Mdocym](MDOCYMLOGO.png)
+
 Mar Dionysius Orthodox Christian Youth Movement
+
 St. Stephen's Mount Tabor Diara Chapel
+
 Pathanapuram
